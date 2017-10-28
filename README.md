@@ -1,1 +1,0 @@
-# SofyaOzherelieva.github.io
